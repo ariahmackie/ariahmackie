@@ -1,4 +1,4 @@
-Hi there!
+
 
 My name is Ariah Mackie. 
 
